@@ -12,6 +12,8 @@ Of course, it's not always easy to compare rates. Insurers use different methods
 
 An independent agent works with multiple insurers and can help you compare rates and coverage options. The best part is that they don't work for any one company, so they're unbiased in their recommendations.
 Some of our insurers
+
+cyfinancialsolutions.com
 https://www.progressive.com/
 https://www.travelers.com/
 www.libertymutual.com
